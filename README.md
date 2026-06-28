@@ -13,7 +13,7 @@ heylo!!! please call me Dinky - or the name of the character im wearing
 they ୧ them prns , others are fine but not preffered.
 </p>
 <p align="center">
-![image alt](https://64.media.tumblr.com/1cab21a93a19339a3b1846355f92a47a/7079d27fae73f78e-50/s2048x3072/06549e86c59b2886ddd8f53b79f3ef35b8b33e01.pnj)
+![image alt](https://github.com/priijan/priijan/blob/main/tumblr_1cab21a93a19339a3b1846355f92a47a_06549e86_2048.png?raw=true)
 </p>
 <p align="center">
 w2i always unless im visibly active in-game :p walk up to me if so
