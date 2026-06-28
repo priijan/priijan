@@ -10,5 +10,5 @@ This was made mainly because of PonyTown. sorry to any waifs who managed to find
 heylo!!! please call me Dinky - or the name of the character im wearing
 </p>
 <p align="center">
-they  <img src="https://64.media.tumblr.com/7187cb979d4c35ee3f8f4d51ac873e88/8b87ed40a413f91c-37/s75x75_c1/59d46e3e675b5ddad5aa9a7804a1599ed2d75a6f.gifv" alt="Sample Image" width="770" height="60"> them prns, others are fine but not preffered.
+they  <img src="https://64.media.tumblr.com/7187cb979d4c35ee3f8f4d51ac873e88/8b87ed40a413f91c-37/s75x75_c1/59d46e3e675b5ddad5aa9a7804a1599ed2d75a6f.gifv" alt="Sample Image" width="20" height="20"> them prns, others are fine but not preffered.
 </p>
