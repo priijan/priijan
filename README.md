@@ -17,5 +17,7 @@ they ୧ them prns , others are fine but not preffered.
 </p>
 <p align="center">
 w2i always unless im visibly active in-game :p walk up to me if so
- c+h always welcome! don't be afraid to int
+</p>
+<p align="center">
+c+h always welcome! don't be afraid to int
 </p>
