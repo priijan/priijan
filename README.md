@@ -10,7 +10,7 @@
 heylo!!! please call me Dinky - or the name of the character im wearing
 </p>
 <p align="center">
- <img src="https://64.media.tumblr.com/e4743d6f777c4ce8f11608394ddc31c0/1650e0230bea73c6-09/s2048x3072/1e607c10a712fc4f080d4e8507f8960196416468.pnj" alt="Sample Image" width="580" height="20">
+ <img src="https://64.media.tumblr.com/eb1c63cb1b18379c3c67ec55f95572ac/161d484090d78c6e-56/s2048x3072/f9a60586c980a936b7f2997838582ea2378abeaa.pnj" alt="Sample Image" width="580" height="20">
 </p>
 <p align="center">
 they ୧ them prns , others are fine but not preffered.
