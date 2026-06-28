@@ -2,9 +2,8 @@
 <sup>This was made for PonyTown. sorry to any waifs who managed to find this outside of said game.</sup>
 
 <p align="center">
- <img src="https://64.media.tumblr.com/07db79aa70348f1685099815c7a0a69f/bfb858a987b0417b-02/s2048x3072/9edb64a51576e355f4431afc4d0549b0b11d9207.pnj" alt="Sample Image" width="770" height="70"><br> <img src="https://64.media.tumblr.com/aa72ce551c888daaccac402927612697/a28bce1be6c7bc3f-1f/s2048x3072/185c5c7426e1dedce0e23822ffddb6bbb8af0b66.pnj" alt="Sample Image" width="770" height="50">
-</p>
-
+ <img src="https://64.media.tumblr.com/07db79aa70348f1685099815c7a0a69f/bfb858a987b0417b-02/s2048x3072/9edb64a51576e355f4431afc4d0549b0b11d9207.pnj" alt="Sample Image" width="770" height="70"><br> <img src="https://64.media.tumblr.com/aa72ce551c888daaccac402927612697/a28bce1be6c7bc3f-1f/s2048x3072/185c5c7426e1dedce0e23822ffddb6bbb8af0b66.pnj" alt="Sample Image" width="770" height="50"><br>
+<img src="https://64.media.tumblr.com/6e6c79a1dcf3fd8b8664cc32aaac8b22/f166cbaf9778c335-40/s1280x1920/5a8bd5d8f0a0d89217d7ec7da7ab8f2353f12d61.pnj" alt="Sample Image" width="90" height="50">
 <p align="center">
 heylo!!! please call me Dinky - or the name of the character im wearing
 </p>
