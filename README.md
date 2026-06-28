@@ -3,7 +3,7 @@ This was made mainly because of PonyTown. sorry to any waifs who managed to find
 </p>
 
 <p align="center">
- <img src="https://64.media.tumblr.com/7987d618e5f360845122202b03c366da/68e5113904ff79af-89/s2048x3072/c63741c31046fa6c1e7e6291e0ed4b2b125e8428.pnj" alt="Sample Image" width="800" height="40">
+ <img src="https://64.media.tumblr.com/7987d618e5f360845122202b03c366da/68e5113904ff79af-89/s2048x3072/c63741c31046fa6c1e7e6291e0ed4b2b125e8428.pnj" alt="Sample Image" width="870" height="80">
 </p>
 
 <p align="center">
