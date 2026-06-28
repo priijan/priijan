@@ -1,5 +1,5 @@
 <p align="center">
-This was made mainly because of PonyTown. sorry to any waifs who managed to find this outside of said game.
+<sub>This was made mainly because of PonyTown. sorry to any waifs who managed to find this outside of said game.</sub>
 </p>
 
 <p align="center">
