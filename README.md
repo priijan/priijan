@@ -9,12 +9,12 @@
 heylo!!! please call me Dinky - or the name of the character im wearing
 </p>
 <p align="center">
-they ୧ them prns<br>
+**they** ୧ **them** prns<br>
 others are fine but not preffered.
 <p align="center">
  <img src="https://64.media.tumblr.com/64add5adcb17f4df997a2aa6cdae0ed5/9a061edf612c7106-29/s500x750/f99e64c64c5c12e7bc8b8b82bc7a4e4ec01992ae.pnj" alt="Sample Image" width="380" height="20">
 <p align="center">
-w2i always unless im visibly active in-game :p walk up to me if so
+w2i always unless im **visibly active in-game**, walk up to me instead if so
 <p align="center">
 c+h always welcome! i dont bite<br>
 <sup>byi ; i am a very introverted person, interactions may be awkward :,D</sup>
