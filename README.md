@@ -1,6 +1,5 @@
 <p align="center">
 <sub>This was made mainly because of PonyTown. sorry to any waifs who managed to find this outside of said game.</sub>
-</p>
 
 <p align="center">
  <img src="https://64.media.tumblr.com/07db79aa70348f1685099815c7a0a69f/bfb858a987b0417b-02/s2048x3072/9edb64a51576e355f4431afc4d0549b0b11d9207.pnj" alt="Sample Image" width="770" height="70">
