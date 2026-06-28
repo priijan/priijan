@@ -2,7 +2,7 @@
 <sup>This was made for PonyTown. sorry to any waifs who managed to find this outside of said game.</sup>
 
 <p align="center">
- <img src="https://64.media.tumblr.com/07db79aa70348f1685099815c7a0a69f/bfb858a987b0417b-02/s2048x3072/9edb64a51576e355f4431afc4d0549b0b11d9207.pnj" alt="Sample Image" width="770" height="70"><br> <img src="https://64.media.tumblr.com/6ddcde4ee45b7082fb0fd6905ae2e490/779aa251fd339498-09/s2048x3072/fd1dbe1bd56fe6e62db0912c91d766d9cd861891.pnj" alt="Sample Image" width="770" height="50">
+ <img src="https://64.media.tumblr.com/07db79aa70348f1685099815c7a0a69f/bfb858a987b0417b-02/s2048x3072/9edb64a51576e355f4431afc4d0549b0b11d9207.pnj" alt="Sample Image" width="770" height="70"><br> <img src="https://64.media.tumblr.com/aa72ce551c888daaccac402927612697/a28bce1be6c7bc3f-1f/s2048x3072/185c5c7426e1dedce0e23822ffddb6bbb8af0b66.pnj" alt="Sample Image" width="770" height="50">
 </p>
 
 <p align="center">
