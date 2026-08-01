@@ -6,7 +6,6 @@
 <p align="center">
 heylo!!! please call me Dinky - or the name of the character im wearing
  
- <img src="https://64.media.tumblr.com/6e6c79a1dcf3fd8b8664cc32aaac8b22/f166cbaf9778c335-40/s1280x1920/5a8bd5d8f0a0d89217d7ec7da7ab8f2353f12d61.pnj" alt="Sample Image" width="20" height="20">
 
 <p align="center">
 they ୧ them prns<br>
