@@ -1,5 +1,4 @@
-<p align="center" >image below is drawn by le uv-light~
-<p align="center" ><img width="477" height="318" alt="image" src="https://github.com/user-attachments/assets/edc5497e-be51-4647-a99b-c6bc32b1f3ad" /><br>
-<p align="center" >gonna rmk this. c+h and w2i always unless stated otherwise hehehehe!<br>
-sign my <a href="https://priijan.atabook.org/">atabook</a> if you think im cute and funny<br><br>
-im not a sprout kin or yume stop blocking me over this.stuuop. ;;-;
+<p align="center">${\textsf{\color{#957e61}this is meant for ponytown!!}}$<br>
+<p align="center"><img width="600" src="https://github.com/priijan/priijan/blob/main/hmelel.png?raw=true"><br>
+${\textsf{\color{#957e61}dinkyㅤorㅤbonnibelㅤ.ㅤ15 yrsㅤ.ㅤ-13 dni}}$<br>${\textsf{\color{#80733c}theyㅤ/ㅤthemㅤONLY}}$<br>ㅤ<br>${\textsf{\color{#806427}c + h ㅤencㅤ!!ㅤ𑣲ㅤw2iㅤifㅤoff-tabㅤ.ㅤint freely}}$<br>${\textsf{\color{#784017}ifㅤimㅤtalkingㅤ/ㅤsitting nextㅤtoㅤsomebodyㅤproblematicㅤPLEASEㅤlmk. ;;-;}}$<br>${\textsf{\color{#7b2d1b}usuallyㅤnearㅤspawnㅤorㅤ@ㅤtheㅤDWㅤarea.}}$<br>ㅤ<br>${\textsf{\color{#7b2d1b}sign my}}$ <a href="https://priijan.atabook.org/">atabook</a>${\textsf{\color{#7b2d1b}. hehehehe!}}$<br>${\textsf{\color{#7b2d1b}dni qwel supporters}}$
+
